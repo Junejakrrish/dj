@@ -1,1 +1,1 @@
-# dj
+krishi s trdytj xe durycuvgh
